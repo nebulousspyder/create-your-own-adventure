@@ -39,3 +39,7 @@ I am batman's cousin.
 Now that Bruce Wayne is grown old, he has proclaimed that I should take over his legacy!
 
 Over my dead body!! Says Robin.
+
+Along came Nightwing and Damien Wayne to fight it out and decide the true heir to the cowl.
+
+Alas! it was too late as the heir had already been decided.
